@@ -1,6 +1,6 @@
 **Crystal - Discord account creator.**
 
-*NO CAPTCHA KEYS FREE GENNING!*
+*NO CAPTCHA KEYS FREE GENNING*
 
 The price is negotiable, its really cheap and not over 500$. I can show the discord token creator in my telegram, just [contact](https://t.me/imagin88) me. We will talk about prices, and if you [contact](https://t.me/imagin88) me, we can also talk about monthlys, weeklys, yearlys, for test first. Ill be avaible to sell source, exe, exe with hwid lock. 
 
